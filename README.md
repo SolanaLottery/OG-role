@@ -14,7 +14,7 @@ For you, we organize spontaneous and planned drawings of solana coins.
 
 This role will really go to those who can see the potential, they will become the basis of our society.
 
-/
+.
 
 "second - is "OG project", this role will be given to all NFT holders of our first collection /SL OG/ in total 111.
 
