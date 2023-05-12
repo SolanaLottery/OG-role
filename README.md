@@ -16,11 +16,11 @@ This role will really go to those who can see the potential, they will become th
 
 .
 
-"second - is "OG project", this role will be given to all NFT holders of our first collection /SL OG/ in total 111.
+"second - is "OG SL", this role will be given to all NFT holders of our first collection /SL OG/ in total 111.
 
 The first mint will be the starting point for everyone., you can sell NFT and lose the role.
 
-For OG project, we organize spontaneous and planned drawings of solana coins and nft.
+For OG SL, we organize spontaneous and planned drawings of solana coins and nft.
 
 You always get a discount on all mints.
 
